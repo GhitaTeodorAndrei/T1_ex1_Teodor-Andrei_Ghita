@@ -1,1 +1,1 @@
-# T1_ex1_Teodor-Andrei_Ghita
+# T1_Teodor-Andrei_Ghita
